@@ -1,3 +1,2 @@
-# haiiiiiiiii
-# tuffet was here
+# haiiiiiiiii tuffet was here :3
 
